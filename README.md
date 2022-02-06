@@ -1,1 +1,1 @@
-# Superluminal-Light-Digrams
+# Superluminal-Light-Diagrams
